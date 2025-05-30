@@ -1,2 +1,2 @@
 # An-Overview-of-The-Deciding-Factors-For-The-Price-Of-Cricketers-at-Auction-Table
-INDIA is a country of variety. Variety in lifestyle, variety in castes, variety in clothing, variety in  religions. There are also various types of sports, popular among the people of this country. Among  them the most famous and axiomatic sport is Cricket. Irrespective of the various lifestyles and  choices, people are
+INDIA is a country of variety. Variety in lifestyle, variety in castes, variety in clothing, variety in  religions. There are also various types of sports, popular among the people of this country. Among  them the most famous and axiomatic sport is Cricket. Irrespective of the various lifestyles and  choices, people are 
